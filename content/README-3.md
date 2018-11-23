@@ -2,7 +2,11 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 3/11 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [11](/content/README-11.md) [**>**](/content/README-4.md)
+## 頁面 3/12 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [12](/content/README-12.md) [**>**](/content/README-4.md)
+
+[翻译李小牧：帮助6岁中国儿童申请到日本政庇引发网络攻击谩骂](/content/2018/08/20180825-4400210034227613959.md)
+
+[文字版8月20日．文贵报平安视频！](/content/2018/08/20180824-6616528476555245801.md)
 
 [文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/2018/08/20180821-7217065400016406673.md)
 
@@ -50,9 +54,5 @@
 
 [翻译：谍战大戏：虎穴追踪，智擒线民 （1）](/content/2018/07/20180703-4499282399094679308.md)
 
-[翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
 
-[文字版6/27/18郭媒体直播](/content/2018/07/20180701-1675811568156911003.md)
-
-
-## 頁面 3/11 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [11](/content/README-11.md) [**>**](/content/README-4.md)
+## 頁面 3/12 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [12](/content/README-12.md) [**>**](/content/README-4.md)

@@ -2,7 +2,11 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 11/11 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11**
+## 頁面 11/12 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [**>**](/content/README-12.md)
+
+[（五）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（五）](/content/2018/04/20180418-8084565878058568507.md)
+
+[（四）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（四）](/content/2018/04/20180418-5802483270047805854.md)
 
 [（三）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（三）](/content/2018/04/20180418-132220289355262532.md)
 
@@ -50,7 +54,5 @@
 
 [袁红冰: 郭文贵事件对中国未来的价值|郭宝胜访谈文字版2017-6-24](/content/2018/04/20180418-8213280584796437424.md)
 
-[|郭文贵9月7号报平安是盗国集团的凶恶促使我决定美国政治庇护直播文字版](/content/2018/04/20180418-3180317526840992396.md)
 
-
-## 頁面 11/11 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11**
+## 頁面 11/12 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [**>**](/content/README-12.md)
