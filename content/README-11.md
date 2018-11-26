@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 11/12 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [**>**](/content/README-12.md)
 
+[2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
+
+[Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
+
 [美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/2018/04/20180418-6931208450020595005.md)
 
 [翻译：Bill Gertz访谈郭文贵先生：中国在美国的情报网络包括了25,000名间谍](/content/2018/04/20180418-6992843521807662530.md)
@@ -49,10 +53,6 @@
 [郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
 
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清|文字版(完整版)](/content/2018/04/20180418-3089407742427439276.md)
-
-[袁红冰: 郭文贵事件对中国未来的价值|郭宝胜访谈文字版](/content/2018/04/20180418-1789482780048338185.md)
-
-[ 郭文贵9月6日报平安：董卿是孙力军的情妇揭秘马航370失踪及雷洋之死|文字版](/content/2018/04/20180418-6438072051436758841.md)
 
 
 ## 頁面 11/12 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [**>**](/content/README-12.md)

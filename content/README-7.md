@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 7/12 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-8.md)
 
+[文字版：2018年2月10日郭先生再 郭媒体六段演讲](/content/2018/04/20180418-7159181407052206452.md)
+
+[文字版：文贵2月9号报平安直播](/content/2018/04/20180418-5725033153896340679.md)
+
 [文字版：2018年2月8号文贵报平安视频](/content/2018/04/20180418-4679573221949971590.md)
 
 [文字版：2018年2月7日郭先生郭媒体2个视频演讲](/content/2018/04/20180418-2002995963017552937.md)
@@ -49,10 +53,6 @@
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/content/2018/04/20180418-7392390193329846030.md)
 
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/2018/04/20180418-3422500630253145548.md)
-
-[2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/2018/04/20180418-1392173713763860435.md)
-
-[BBG Watch：美国-中国经济与安全审查委员会对郭文贵和美国之音的调查结果](/content/2018/04/20180418-1652882263538149002.md)
 
 
 ## 頁面 7/12 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-8.md)
