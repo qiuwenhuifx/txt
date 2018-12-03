@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 9/12 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-10.md)
 
+[Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/2018/04/20180418-7095490617264238723.md)
+
+[Bill Gertz: 特朗普在中美高峰会上反对加强与中国的执法关系](/content/2018/04/20180418-2982915845250551148.md)
+
 [11月8日文贵twitter再次被封7天后的报平安视频](/content/2018/04/20180418-7262790199483543364.md)
 
 [文字版：2017年11月7日郭文贵先生接受郭牧师采访](/content/2018/04/20180418-3724438328570964289.md)
@@ -49,10 +53,6 @@
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
 
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
-
-[CNBC：有报道称史蒂夫.韦恩向川普总统递交了来自中国政府要求遣返郭文贵的信件](/content/2018/04/20180418-3704285633140806842.md)
-
-[华盛顿观察报：据报道，中国利用美国赌场大亨、共和党筹款人史蒂夫•韦恩(Steve Wynn)游说川普遣返郭文贵几乎奏效](/content/2018/04/20180418-3075028168264714407.md)
 
 
 ## 頁面 9/12 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-10.md)

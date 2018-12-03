@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 4/12 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [12](/content/README-12.md) [**>**](/content/README-5.md)
 
+[文字版：July 9th 2018．王健拍照死．孟的张明鹏院长被抓．709案件国际高度关注！代表着什么？](/content/2018/07/20180711-2033069974209071479.md)
+
+[文字版：July 6th 2018 郭媒体直播](/content/2018/07/20180708-180274757659338281.md)
+
 [翻译：中国电子间谍威胁 by Bill](/content/2018/07/20180707-1620127195279414710.md)
 
 [文字版2018年5月22日谈委内瑞拉马来西亚是我们借鉴走向喜马拉雅的好榜样岳文海的腐败](/content/2018/07/20180706-8441159493365541935.md)
@@ -49,10 +53,6 @@
 [文字版：4月28日金正恩是我们学习的坏榜样！ ](/content/2018/04/20180429-1799430545409667372.md)
 
 [文字版郭文贵先生4月26日：在西香格里拉酒店被抓嫖娼两位歌星是谁？](/content/2018/04/20180427-3820645061800034569.md)
-
-[翻译2018年4月26号自由灯塔报道中国制造虚假信息加强指控中国异见人士](/content/2018/04/20180427-4217728045032280574.md)
-
-[郭文贵先生与陈志煜对话录音（中英字幕）](/content/2018/04/20180426-6089618542439587251.md)
 
 
 ## 頁面 4/12 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [12](/content/README-12.md) [**>**](/content/README-5.md)
