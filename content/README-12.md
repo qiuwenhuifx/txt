@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 12/12 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12**
 
+[郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)
+
 [郭文贵先生9月10号报平安直播文字版](/content/2018/04/20180418-8363627678146390497.md)
 
 [郭文贵9月4日报平安: 关于鲍老痛心我与老领导见面的音频及几个问题的澄清|文字版(完整版)](/content/2018/04/20180418-3089407742427439276.md)

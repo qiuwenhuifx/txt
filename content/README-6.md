@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 6/12 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [**>**](/content/README-7.md)
 
+[ 文字版： 3月28日香港黑警察与金正恩访华！](/content/2018/04/20180418-7167850208053713596.md)
+
 [文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/content/2018/04/20180418-7199501813043943627.md)
 
 [文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/content/2018/04/20180418-2462703104101503083.md)
@@ -51,8 +53,6 @@
 [文字版：《文贵看春晚》爆料最后精彩演讲](/content/2018/04/20180418-1760383134905621462.md)
 
 [文字版：《文贵看春晚》爆料（一，二）](/content/2018/04/20180418-7031561939158175109.md)
-
-[翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/2018/04/20180418-763599540793711583.md)
 
 
 ## 頁面 6/12 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [**>**](/content/README-7.md)

@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 1/12 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [12](/content/README-12.md) [**>**](/content/README-2.md)
 
+[文字版：杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/content/2018/12/20181205-2670968089452974831.md)
+
 [文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/content/2018/12/20181201-3387021380873494190.md)
 
 [文字版: 2018年11月27日文贵在华盛顿报平安直播视频！](/content/2018/11/20181129-7314078079125955077.md)
@@ -51,8 +53,6 @@
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/2018/10/20181030-1889983154079130395.md)
 
 [文字版：10月26日尊敬的战友们好你们健身了吗一切都是刚刚开始谈谈港币和人民币的汇率](/content/2018/10/20181027-2575309675439495092.md)
-
-[翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/content/2018/10/20181026-8395548842553484122.md)
 
 
 ## 頁面 1/12 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [12](/content/README-12.md) [**>**](/content/README-2.md)

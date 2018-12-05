@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 2/12 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [12](/content/README-12.md) [**>**](/content/README-3.md)
 
+[翻译：凯尔巴斯：特朗普有和中国谈判的最强“筹 码”Kyle Bass: Trump Has "Strongest Negotiating Position We've  Ever Had" Against China](/content/2018/10/20181026-8395548842553484122.md)
+
 [文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/2018/10/20181026-6578176193643751329.md)
 
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/2018/10/20181026-1627101594427437852.md)
@@ -51,8 +53,6 @@
 [文字版：2018年9月7日文贵申请政庇一周年与战友们分享香港司法的危害与黑暗的事实！](/content/2018/09/20180909-4427977020918468528.md)
 
 [文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/content/2018/09/20180907-3174109642123274435.md)
-
-[文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/content/2018/09/20180905-9130143766772913828.md)
 
 
 ## 頁面 2/12 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [12](/content/README-12.md) [**>**](/content/README-3.md)

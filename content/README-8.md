@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 8/12 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-9.md)
 
+[华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/2018/04/20180418-6750041180802210914.md)
+
 [曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/content/2018/04/20180418-7392390193329846030.md)
 
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/2018/04/20180418-3422500630253145548.md)
@@ -51,8 +53,6 @@
 [文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/content/2018/04/20180418-2945530337059474065.md)
 
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/content/2018/04/20180418-5435715492986281855.md)
-
-[（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/2018/04/20180418-1176717369305738792.md)
 
 
 ## 頁面 8/12 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-9.md)
