@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 10/12 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-11.md)
 
+[翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
+
+[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
+
 [翻译：The Diplomat：郭文贵—特朗普时代美中关系的一个定时炸弹？](/content/2018/04/20180418-8435837672278368881.md)
 
 [翻译：总统特朗普，郭文贵和一连串的奇事](/content/2018/04/20180418-4937079468780903769.md)
@@ -49,10 +53,6 @@
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
 
 [美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
-
-[美国新闻关于郭先生的报道的收集](/content/2018/04/20180418-2688604786049331221.md)
-
-[郭文贵先生10月8日报平安直播：因吴征杨澜即将爆发的中美巨大政治丑闻！](/content/2018/04/20180418-5215268758560370583.md)
 
 
 ## 頁面 10/12 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-11.md)
