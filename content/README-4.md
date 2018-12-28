@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 4/12 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [12](/content/README-12.md) [**>**](/content/README-5.md)
 
+[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张](/content/2018/08/20180815-4681495316347763859.md)
+
 [文字版：August 13th 2018：大连政法委书记于德泉．检察长吴喆！在几个小时前在京哈高速上．将盘古公司副总经理贾鑫及妻子两个孩子绑架至大连！](/content/2018/08/20180815-2211522547668099731.md)
 
 [文字版： August 9th 2018](/content/2018/08/20180810-4219843988347833039.md)
@@ -51,8 +53,6 @@
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180608-8000393637108456093.md)
 
 [文字版：6月2日接受安红女士．丘岳首先生釆访．纪念六四．及袁红冰．郭宝胜．赖建平的盗骗之劣术](/content/2018/06/20180606-3544664024044691633.md)
-
-[文字版6月1日．文贵视频为什么成为盗国贼的精神艾滋！](/content/2018/06/20180603-4228988724633844641.md)
 
 
 ## 頁面 4/12 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [12](/content/README-12.md) [**>**](/content/README-5.md)

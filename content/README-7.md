@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 7/12 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-8.md)
 
+[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/2018/04/20180418-2511616355314092455.md)
+
 [文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/content/2018/04/20180418-5411508062276363731.md)
 
 [文字版：03/09/18郭媒体视频文贵有三急和文贵是不是要反习主席了呢？NO！](/content/2018/04/20180418-3356176592243296603.md)
@@ -51,8 +53,6 @@
 [郭先生01/30/18郭媒体的3段讲话](/content/2018/04/20180418-6787859769038780160.md)
 
 [翻译：中国的思想警察管得越来越宽（小平事件）](/content/2018/04/20180418-8145984323910916538.md)
-
-[翻译：美籍华人记者声称中国绑架了他的妻子](/content/2018/04/20180418-3894960312910613407.md)
 
 
 ## 頁面 7/12 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [**>**](/content/README-8.md)

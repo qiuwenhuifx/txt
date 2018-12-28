@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 6/12 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [**>**](/content/README-7.md)
 
+[文字版4月10日文贵谈见宝胜与到底该不该反习！](/content/2018/04/20180418-4672743794612401842.md)
+
 [文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/2018/04/20180418-3613340055974821573.md)
 
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/2018/04/20180418-26077859752910433.md)
@@ -51,8 +53,6 @@
 [文字版：3月14日郭媒体2个视频1. 文贵坚决反对用援郭会的名参与共振2. 关于明镜陈军和何频的事件及五一共振可能会造成的后果](/content/2018/04/20180418-7942093624246044835.md)
 
 [文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系](/content/2018/04/20180418-2308188631672576796.md)
-
-[文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/2018/04/20180418-2511616355314092455.md)
 
 
 ## 頁面 6/12 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [**>**](/content/README-7.md)

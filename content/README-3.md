@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 3/12 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [12](/content/README-12.md) [**>**](/content/README-4.md)
 
+[文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/content/2018/09/20180923-1607406229433269336.md)
+
 [翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/content/2018/09/20180923-4453715019951435654.md)
 
 [文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/2018/09/20180922-4402169540593751293.md)
@@ -51,8 +53,6 @@
 [文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/2018/08/20180817-2378902037495839266.md)
 
 [文字版8月12号．王建被杀刑事案件正在进行中！新闻发布会，在两三周内举行，感谢战友昨天在曼哈顿的热情支持！一切都是刚刚开始！](/content/2018/08/20180816-757785613793361402.md)
-
-[文字版8月13日：西方国家正在形成正义联盟共同反击中共的纳谇主义扩张](/content/2018/08/20180815-4681495316347763859.md)
 
 
 ## 頁面 3/12 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [12](/content/README-12.md) [**>**](/content/README-4.md)
