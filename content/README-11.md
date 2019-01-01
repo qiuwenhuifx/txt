@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 11/12 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [**>**](/content/README-12.md)
 
+[（五）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-4956474100974687354.md)
+
 [（四）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-980107644225560251.md)
 
 [(三）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-239017834240302827.md)
@@ -51,8 +53,6 @@
 [（一）2017年文贵爆料中国盗国贼首场全球信息发＂不＂会！ 关于王岐山．孟建柱．孙立军的巨额财富．私生子．非法身份等盗国事实！（一）](/content/2018/04/20180418-5664665363890615082.md)
 
 [翻译 :中国逃亡大亨郭文贵在美国法庭上击败了对冲基金高达8800万美元的诉讼](/content/2018/04/20180418-3031315413205773844.md)
-
-[2017年9月19日明镜专访郭文贵第六期（8）：政治庇护律师迫于压力辞职](/content/2018/04/20180418-1436420880757298143.md)
 
 
 ## 頁面 11/12 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [**>**](/content/README-12.md)
