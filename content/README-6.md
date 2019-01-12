@@ -2,7 +2,13 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 6/12 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [**>**](/content/README-7.md)
+## 頁面 6/13 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [13](/content/README-13.md) [**>**](/content/README-7.md)
+
+[文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/content/2018/04/20180421-3038856326236637866.md)
+
+[文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/content/2018/04/20180421-8587540103403110873.md)
+
+[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/content/2018/04/20180421-8336686313989639143.md)
 
 [文字版2018.04.16文贵在Livestream与战友互动精华版](/content/2018/04/20180418-6010504136647402175.md)
 
@@ -48,11 +54,5 @@
 
 [文字版：3月20日文贵报平安视频.盗国贼靠吴征等能依法治国！实现中国梦吗？](/content/2018/04/20180418-8337465493911865893.md)
 
-[文字版：2018年3月18日文贵再谈如何掏肛盗国贼](/content/2018/04/20180418-39810748690895167.md)
 
-[文字版：03/17/18文贵如何看王岐山当选副主席郭七条变不变！喜马拉雅的法治中国目标还能实现吗？](/content/2018/04/20180418-8884654215311993874.md)
-
-[头条：罗杰斯通因诽谤而被富商郭文贵起诉索赔1亿美元](/content/2018/04/20180418-8895540675062184474.md)
-
-
-## 頁面 6/12 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) ... [**>**](/content/README-7.md)
+## 頁面 6/13 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [13](/content/README-13.md) [**>**](/content/README-7.md)

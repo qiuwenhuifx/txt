@@ -2,7 +2,13 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 1/12 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [12](/content/README-12.md) [**>**](/content/README-2.md)
+## 頁面 1/13 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [13](/content/README-13.md) [**>**](/content/README-2.md)
+
+[文字版：2019年1月10日，談袁健斌的案子，徵求春節爆猛料內幕](/content/2019/01/20190112-7236434520356507605.md)
+
+[文字版：1月8日文贵报平安视频](/content/2019/01/20190112-1742695953607571413.md)
+
+[文字版：2019年1月7日文贵报平安直播谈马云和被双规的陈刚以及烂人郭宝胜的案子](/content/2019/01/20190112-7038821530851525661.md)
 
 [文字版：2019年1月6号文贵报平安直播：关于战友们关心的法制基金的几个问题的回复！以及文贵对香港，澳门台湾法制沦陷……是被孟建柱．王岐山．孙力军等控制的结果几个观点！](/content/2019/01/20190108-2730263120772075960.md)
 
@@ -48,11 +54,5 @@
 
 [翻译：1120发布会来宾提问，班农和郭先生回答](/content/2018/11/20181124-8581162821359950469.md)
 
-[2018年11月20号发布会班农第一部分演讲翻译以及文字版郭文贵先生发布会个人演讲部分](/content/2018/11/20181123-7564165555128970884.md)
 
-[文字版：郭文贵2018年11月21日视频丢掉放弃幻想只要共产党存在一天我们就没有安全之日亲人员工们忘掉过去的文贵吧现在的文贵是承负着上天的使命和十四亿人民对我的寄托我不能只为你们活着](/content/2018/11/20181123-149600174493022230.md)
-
-[文字版：战友之声 20181117 转郭文贵先生郭媒体直播关于1120最新动态，天塌下来都不会改变1120海航真相王健之死发布会召开！](/content/2018/11/20181118-9134684520600037722.md)
-
-
-## 頁面 1/12 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [12](/content/README-12.md) [**>**](/content/README-2.md)
+## 頁面 1/13 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [13](/content/README-13.md) [**>**](/content/README-2.md)
