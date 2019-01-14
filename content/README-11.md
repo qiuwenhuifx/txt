@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 11/13 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-12.md)
 
+[金融时报 :中共十九大因流亡商人郭文贵爆料乌云笼罩](/content/2018/04/20180418-2687199289814745562.md)
+
 [翻译：YouTube Suspends Account of Chinese Dissident  YouTube暂时关闭中国异议人士帐号](/content/2018/04/20180418-1360693815157442184.md)
 
 [（十一）2017郭文贵爆料到国贼全球发“不”会第四集](/content/2018/04/20180418-3181090078770141211.md)
@@ -51,8 +53,6 @@
 [2017年10月4日郭文贵先生在哈德森演讲延期事件后直播](/content/2018/04/20180418-1711855541201690600.md)
 
 [Facebook冻结讲述腐败故事的中国亿万富翁的账号](/content/2018/04/20180418-7400984700740881497.md)
-
-[美国联邦调查局(FBI)关注中国对其持不同政见者的文件进行黑客攻击](/content/2018/04/20180418-6931208450020595005.md)
 
 
 ## 頁面 11/13 [**<**](/content/README-10.md) [1](/README.md) ... [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) **11** [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-12.md)
