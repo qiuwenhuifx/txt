@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 9/13 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-10.md)
 
+[《澳洲之声》12月13日专访袁红冰 主持人：潘晴](/content/2018/04/20180418-6392488223382498573.md)
+
 [2017年12月12日郭文贵先生在Instagram 直播《文贵给即将在大连被冤审的员工及家人的誓言；谈小平妻子失踪，法新社采访，华涌及乱运8分子》](/content/2018/04/20180418-4672993002919879692.md)
 
 [华盛顿自由灯塔：美国司法部: 没有计划遣返被中国政府迫害的异议人士郭文贵](/content/2018/04/20180418-6750041180802210914.md)
@@ -51,8 +53,6 @@
 [国际新闻工作者协会盯上了VOA断播并解雇三位员工事件](/content/2018/04/20180418-6885559451730743203.md)
 
 [（文字稿）郭宝胜访谈曹长青：永不放弃——如何看待郭文贵的现状与未来](/content/2018/04/20180418-197797650669402457.md)
-
-[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/content/2018/04/20180418-2945530337059474065.md)
 
 
 ## 頁面 9/13 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-10.md)

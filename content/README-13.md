@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 13/13 [**<**](/content/README-12.md) [1](/README.md) ... [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) **13**
 
+[翻译：一位被中国政府通缉的亿万富翁向美国寻求政治庇护](/content/2018/04/20180418-3813308793717217976.md)
+
 [8月25号郭文贵先生做客郭宝胜政论：宗教与中国政治及社会关系文字版](/content/2018/04/20180418-2681102089407913933.md)
 
 [郭文贵先生9月9号报平安直播文字版](/content/2018/04/20180418-2798200416865678412.md)

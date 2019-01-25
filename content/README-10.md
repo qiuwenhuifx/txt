@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 10/13 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-11.md)
 
+[文字版：文贵11月12日在川普总统的马阿拉歌庄园与网友们聊聊天！](/content/2018/04/20180418-2945530337059474065.md)
+
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/content/2018/04/20180418-5435715492986281855.md)
 
 [（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/2018/04/20180418-1176717369305738792.md)
@@ -51,8 +53,6 @@
 [翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
 
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
-
-[翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
 
 
 ## 頁面 10/13 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-11.md)
