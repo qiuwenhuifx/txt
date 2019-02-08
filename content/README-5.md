@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 5/13 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [13](/content/README-13.md) [**>**](/content/README-6.md)
 
+[文字版：2018年8月6日晚上文贵致王健夫人及兄王伟先生的提示法国这个与王健一起最后晚餐的女人！](/content/2018/08/20180810-4256963212298749895.md)
+
 [文字版：2018.8.7王健被杀死前曾接触过其他国家情报部门并通过香港中间人与文贵有联系！](/content/2018/08/20180810-3627104687795521023.md)
 
 [文字版：8月5号王健被杀的过程和涉及的人](/content/2018/08/20180809-5918968027514942039.md)
@@ -51,8 +53,6 @@
 [文字版531．不要将六．四悲剧变喜剧！马航客机失事新动向！](/content/2018/06/20180601-5466761042269971935.md)
 
 [文字版：5月27日请战友一起反击所谓的文贵海外维稳民主人士阴谋](/content/2018/05/20180530-639277482984082138.md)
-
-[写给美国政府方面的信：我们眼里真实的郭文贵先生（1）](/content/2018/05/20180529-6991075700483755264.md)
 
 
 ## 頁面 5/13 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [13](/content/README-13.md) [**>**](/content/README-6.md)
