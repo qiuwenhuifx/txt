@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 1/13 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [13](/content/README-13.md) [**>**](/content/README-2.md)
 
+[文字版：2019 年2月4号 除夕去共赢正道郭文贵爆料春晚之达赖喇嘛尊者篇](/content/2019/02/20190209-3310541803704262131.md)
+
 [翻译：委内瑞拉军方将意识到马杜罗的时代已经结束: 美国国务卿迈克·庞培](/content/2019/02/20190208-4952752821783304200.md)
 
 [For CHINA, Is GUO Wengui More Important Than A State Level Ally?](/content/2019/02/20190207-4750659155472193962.md)
@@ -51,8 +53,6 @@
 [文字版：2018年12月27日郭文贵直播。原马健副部长所谓的被判无期徒刑是中共“以黑治国”“以警治国”最好的证明！郭文贵将不惜一切代价为马健先生及绝大多数被残害的共产党员争取公平！真相！还他们自由！  ](/content/2018/12/20181228-5085719562457402069.md)
 
 [文字版：2018年12月22日郭文贵先生郭媒体直播聊聊刘特佐的下场，政商双轨制下的香港沦落，东西方恋爱观，爆料革命的回望和展望](/content/2018/12/20181224-4525324540610359598.md)
-
-[翻译：两名与中国国安有关联的中国黑客被控告违法入侵和盗取全球范围的知识产权和商业机密](/content/2018/12/20181221-8361136447914723605.md)
 
 
 ## 頁面 1/13 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [13](/content/README-13.md) [**>**](/content/README-2.md)

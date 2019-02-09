@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 3/13 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [13](/content/README-13.md) [**>**](/content/README-4.md)
 
+[文字版：11月7日报平安直播郭台铭在美投资可能 被没收！中期选举后 焦聚11月19号全球爆料王建之死新闻发布会！美国两党亲共官员离职！两党统一反共！](/content/2018/11/20181108-3694443382811258849.md)
+
 [翻译李小牧先生日本报导：沙特记者被害案和海航（王健身死）疑案的“交叉点”](/content/2018/11/20181103-7756356782375038893.md)
 
 [翻译：司法部长杰夫塞申斯宣布了打击中国经济间谍活动的新举措](/content/2018/11/20181103-2322680967443605626.md)
@@ -51,8 +53,6 @@
 [文字版：郭文贵9月22日香港台湾上海股市汇市可能发生天翻地覆的变化！](/content/2018/09/20180923-1607406229433269336.md)
 
 [翻译：李小牧作为新宿案内人（引路人）的李小牧   对毫无根据的谣言和诽谤中伤的全部回应](/content/2018/09/20180923-4453715019951435654.md)
-
-[文字版：9.16第一段第二段我向美国朋友解柝郭七来！为什么不反习！及我有绝对信心中国政权一定会更迭！为什么没有共产党统治的海外华人世界为什么让西方如此看不起与不信任！](/content/2018/09/20180922-4402169540593751293.md)
 
 
 ## 頁面 3/13 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [13](/content/README-13.md) [**>**](/content/README-4.md)
