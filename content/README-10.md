@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 10/13 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-11.md)
 
+[颠倒是非大肆攻击郭文贵先生的刘刚西诺在BBG 发言的所谓证词！](/content/2018/04/20180418-7352823982455357971.md)
+
 [自由灯塔 Bill Gertz：报告称异议人士遭受来自中国的网络和信息攻击](/content/2018/04/20180418-184430822548389263.md)
 
 [文字版：1115郭先生在Instagram 直播 痛斥唐柏桥](/content/2018/04/20180418-7738901583406026314.md)
@@ -51,8 +53,6 @@
 [文字版（一）：2017年10月31号赵岩先生采访郭文贵先生](/content/2018/04/20180418-1971865478484839021.md)
 
 [文字版：2017年10月31日关于郭先生家人再次被捕被判视频](/content/2018/04/20180418-4149088156971792367.md)
-
-[CNBC 报导：中国内部影响世界的绝密“法宝”](/content/2018/04/20180418-6039693712536282425.md)
 
 
 ## 頁面 10/13 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-11.md)

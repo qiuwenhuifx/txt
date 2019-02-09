@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 7/13 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [**>**](/content/README-8.md)
 
+[文字版2018年4月9号尊敬的战友们好文贵为什么在华盛顿](/content/2018/04/20180418-3613340055974821573.md)
+
 [文字版：2018年4月7号郭文贵爆：吴晓辉在华尔道夫酒店的保险箱藏有什么，吴晓辉与胡舒立-海航．是你么逻辑上的关系！](/content/2018/04/20180418-26077859752910433.md)
 
 [文字版2018年4月6日王岐山抓吴晓辉是打邓家威胁美国总统的一箭多雕之计！ ](/content/2018/04/20180418-6417716069003334186.md)
@@ -51,8 +53,6 @@
 [文字版：03/13/18 郭媒体3个视频1.陈军到底拥有多少明镜股份2.美国新的国务卿将对盗国贼是巨大的打击3.明镜的股权用什么可以证明和陈军有关系](/content/2018/04/20180418-2308188631672576796.md)
 
 [文字版：2018年3月12号郭媒体4个视频关于支持路德，抛弃假新闻自媒体，战友发来的证据，起诉吴征等](/content/2018/04/20180418-2511616355314092455.md)
-
-[文字版3月11日 文贵对5．1共振的看法．及昨天发出错误文件的解释．以及对陈军这些小人下一步的行动](/content/2018/04/20180418-5411508062276363731.md)
 
 
 ## 頁面 7/13 [**<**](/content/README-6.md) [1](/README.md) ... [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) **7** [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) ... [**>**](/content/README-8.md)
