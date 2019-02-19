@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 6/13 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [13](/content/README-13.md) [**>**](/content/README-7.md)
 
+[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/content/2018/06/20180626-3936778233865225859.md)
+
+[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/content/2018/06/20180620-3280425494890246053.md)
+
 [文字版：20186月10日玉岐山孟建柱命不久了马航真相一定会公布(一)](/content/2018/06/20180613-5378414891358976970.md)
 
 [翻译：“中华文春砲”郭文贵与29年无果的民主运动家的不同作者：李小牧 2018年6月2日](/content/2018/06/20180608-8000393637108456093.md)
@@ -49,10 +53,6 @@
 [文字版：路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第二部分龚小夏连线提问）](/content/2018/04/20180421-3038856326236637866.md)
 
 [文字版路德访谈郭文贵先生：419VOA断播门一周年回顾，再爆新料，展望！（第一部分关于吴晓晖，中共蓝金黄美国）](/content/2018/04/20180421-8587540103403110873.md)
-
-[文字版420文贵将爆中南坑里的老婆女儿的性丑闻](/content/2018/04/20180421-8336686313989639143.md)
-
-[文字版2018.04.16文贵在Livestream与战友互动精华版](/content/2018/04/20180418-6010504136647402175.md)
 
 
 ## 頁面 6/13 [**<**](/content/README-5.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) **6** [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) ... [13](/content/README-13.md) [**>**](/content/README-7.md)

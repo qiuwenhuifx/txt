@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 10/13 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-11.md)
 
+[文字版《澳洲之声》特别专题 / 袁红冰昭明对谈：棒喝伪类！什么是“袁三条”！](/content/2018/04/20180418-662686657760766543.md)
+
+[文字版《澳洲之声》重磅访谈: 昭明专访袁红冰：2017郭文贵爆料革命，就是当代民运最强音！袁红冰痛斥伪类无真情！揭穿伪民运对郭文贵的人格谋杀及政治绑架！](/content/2018/04/20180418-8844190551130915159.md)
+
 [2017.11.23文贵感恩节报平安视频](/content/2018/04/20180418-3850717849203274795.md)
 
 [2017.11.21 文贵Instagram健身直播 ](/content/2018/04/20180418-7655939134164928883.md)
@@ -49,10 +53,6 @@
 [翻译：佛罗里达州参议员马可·卢比奥(Marco Rubio)关注郭文贵先生](/content/2018/04/20180418-7772488713239018228.md)
 
 [文字版：2017年11月2号郭文贵先生在Livestream 直播！](/content/2018/04/20180418-6405859290507553352.md)
-
-[翻译：参议院和众议院都在举行听证会调查包括郭文贵先生被禁言的事情](/content/2018/04/20180418-732290735735777378.md)
-
-[翻译：在中国抗议之下，脸书限制了这位流亡富豪的账户](/content/2018/04/20180418-1943689665396012735.md)
 
 
 ## 頁面 10/13 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-11.md)

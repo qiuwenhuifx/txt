@@ -4,6 +4,10 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 5/13 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [13](/content/README-13.md) [**>**](/content/README-6.md)
 
+[文字版August 17, 2018．文贵曾经经历的中国主持人名星被强迫变态玩弄的血恤的7夕节！](/content/2018/08/20180821-7217065400016406673.md)
+
+[文字版：August 16, 2018．台湾香港等地区的人民的安全．人权．尊严．经济．受到了严重威胁时有权寻求独立．人权生存权大于主权！（一，二）](/content/2018/08/20180818-8117868108357444047.md)
+
 [翻译：李小牧先生：中国 32 家大型企业是否会步海航的后尘，遭 遇“非正常死亡与经营困境”的命运 ](/content/2018/08/20180817-7104426966626506659.md)
 
 [文字版：8月16日：文贵即不是披着羊皮的狼更不是穿着狼皮的羊！](/content/2018/08/20180817-2378902037495839266.md)
@@ -49,10 +53,6 @@
 [翻译Bill Gertz 中国军方最高统帅习近平的副手会见马蒂斯](/content/2018/07/20180703-4076992664553898674.md)
 
 [文字版6/27/18郭媒体直播](/content/2018/07/20180701-1675811568156911003.md)
-
-[文字版：6月25日 房峰辉为什么问蒂斯这个一个美国战亡士兵价值值中扺国一个连退休士命的命钱](/content/2018/06/20180626-3936778233865225859.md)
-
-[文字版：6月17日父亲节谈与政法委老领导的通话！请草根警察不要伤害遭受不公平的草根司机！](/content/2018/06/20180620-3280425494890246053.md)
 
 
 ## 頁面 5/13 [**<**](/content/README-4.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) **5** [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) ... [13](/content/README-13.md) [**>**](/content/README-6.md)
