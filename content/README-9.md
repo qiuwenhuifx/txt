@@ -2,7 +2,9 @@
 ---
 # 郭文貴先生視頻的文字版
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
-## 頁面 9/13 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-10.md)
+## 頁面 9/14 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-10.md)
+
+[文字版：2018年2月6日郭先生郭媒体3个视频演讲](/content/2018/04/20180418-8441280757870399817.md)
 
 [文字版：2018年2月5日郭先生郭媒体3段直播](/content/2018/04/20180418-5529007716852834761.md)
 
@@ -52,7 +54,5 @@
 
 [自由灯塔报导：美国起诉三位与证券公司相关的中国黑客（美国开始觉醒了）](/content/2018/04/20180418-3363832914523693020.md)
 
-[2017年11月27日文贵Livestream 直播谈谈纽约房子价格](/content/2018/04/20180418-8750105287106833411.md)
 
-
-## 頁面 9/13 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [**>**](/content/README-10.md)
+## 頁面 9/14 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-10.md)
