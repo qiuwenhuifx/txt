@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 1/14 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [14](/content/README-14.md) [**>**](/content/README-2.md)
 
+[文字版：2月21日 再談法治基金捐款到底捐給了誰](/content/2019/02/20190225-476123730242359765.md)
+
 [文字版：2019年2月22日文貴報平安談摩根家族及郭寶勝案情](/content/2019/02/20190224-3447840307197696435.md)
 
 [文字版：2019年2月19日文贵直播关键的问题就郭宝胜的护照，还有袁健斌申请的绿卡，必须得让美国政府知道真相](/content/2019/02/20190223-1257758446657176479.md)
@@ -51,8 +53,6 @@
 [文字版2019年1月17 日直播（上，下）](/content/2019/01/20190123-1312642857829852488.md)
 
 [文字版：2019年1月16日郭先生报平安视频（上，下）](/content/2019/01/20190118-5239795096969232686.md)
-
-[文字版：2019年1月12日郭文贵先生接受《楚门看世界》采访](/content/2019/01/20190114-3654521321996198385.md)
 
 
 ## 頁面 1/14 **1** [2](/content/README-2.md) [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) ... [14](/content/README-14.md) [**>**](/content/README-2.md)
