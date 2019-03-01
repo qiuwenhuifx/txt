@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 8/14 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [**>**](/content/README-9.md)
 
+[文字版：2018年3月27号郭先生2个视频1.海航要重新洗牌．王岐山要干什么大事？2. 不允许任何劵商买卖方正股票为的啥？](/content/2018/04/20180418-7199501813043943627.md)
+
 [文字版：2018年3月26日2个视频1.不能将爆料变成娱乐！2.为什么他们让一个女人祼体站几个小时？](/content/2018/04/20180418-2462703104101503083.md)
 
 [文字版：3月24号郭先生平安视频向大家汇报．昨天的会议交流＂中南妖与中南怪＂情况！一切都是刚刚开始](/content/2018/04/20180418-6369908428549122870.md)
@@ -51,8 +53,6 @@
 [文字版：《文贵看春晚》爆料（一，二）](/content/2018/04/20180418-7031561939158175109.md)
 
 [翻译：Bill Gertz 中国大型企业集团面临美国制裁](/content/2018/04/20180418-763599540793711583.md)
-
-[文字版2018年2月12号郭媒体首次直播测试谈吴征如何送钱给《博讯》与韦石](/content/2018/04/20180418-3829299290570910245.md)
 
 
 ## 頁面 8/14 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [**>**](/content/README-9.md)

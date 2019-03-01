@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 4/14 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [14](/content/README-14.md) [**>**](/content/README-5.md)
 
+[文字版：Oct 25th 2018 10月25日：刚刚在以色列科技创新论坛上的王岐山．马云．言讲为什么状态这么不好！以色列人如何看他们的窜访！](/content/2018/10/20181026-6578176193643751329.md)
+
 [文字版：24号王歧山与马云窜访忽悠以色列🇮🇱的现场直播！马云为什么愁眉紧锁！王岐山为自己家族准备的第三条路！](/content/2018/10/20181026-1627101594427437852.md)
 
 [文字版：2018年10月20号21 号郭文贵报平安澳门中联办主任郑晓松被杀是因为孟宏伟！接着排队跳楼的会更多 ，大家拭目以待！！](/content/2018/10/20181022-3410714193458373203.md)
@@ -51,8 +53,6 @@
 [文字版：9.5 黄河边性无能造成严重后果林肯中心被取消发布会（一，二）](/content/2018/09/20180907-3174109642123274435.md)
 
 [文字版：9月3日为了员工家人文贵可以部分妥协但不能放弃爆料革命追求喜马拉雅](/content/2018/09/20180905-9130143766772913828.md)
-
-[文字版：2018年9月2 日文贵是否 应以停止王健被杀新闻发布会 来换取 员工和哥哥的自由！](/content/2018/09/20180905-16996182542595224.md)
 
 
 ## 頁面 4/14 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [14](/content/README-14.md) [**>**](/content/README-5.md)

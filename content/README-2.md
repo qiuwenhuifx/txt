@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 2/14 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [14](/content/README-14.md) [**>**](/content/README-3.md)
 
+[文字版2019年1月19日，文贵报平安视频，中共以假治国、以黑治国到了终结的时候，政事小哥事件在国内影响巨大，这是一个让美国人都恐惧的标志性事件](/content/2019/01/20190123-141136365873986277.md)
+
 [文字版：2019年1月18日郭文贵先生直播（上，下）](/content/2019/01/20190123-8638350325848352117.md)
 
 [文字版2019年1月17 日直播（上，下）](/content/2019/01/20190123-1312642857829852488.md)
@@ -51,8 +53,6 @@
 [文字版：2018/12/08 郭媒体上直播联线……试试在海上的线路是否稳定！ ](/content/2018/12/20181210-8884360174846064842.md)
 
 [文字版：杨澜找钥匙和 G20 会议的背后真相，开棺验王健的尸，谈谈王岐 山，孟建柱，吴征](/content/2018/12/20181205-2670968089452974831.md)
-
-[文字版：2018年11月29日郭文贵先生直播，渤海金控，郭战装和法制基金](/content/2018/12/20181201-3387021380873494190.md)
 
 
 ## 頁面 2/14 [**<**](/README.md) [1](/README.md) **2** [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) ... [14](/content/README-14.md) [**>**](/content/README-3.md)

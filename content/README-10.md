@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 10/14 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-11.md)
 
+[曹长青：唐柏桥诈捐？学历造假？民运大佬们要联名反郭？（文字稿）](/content/2018/04/20180418-7392390193329846030.md)
+
 [2017/12/02《澳洲之声》重磅访谈 / 昭明专访袁红冰（之六）：借诸郭文贵向伪类亮剑之天赐良机，发起重建中国海外民主运动道德形象与政治灵魂的运动！](/content/2018/04/20180418-3422500630253145548.md)
 
 [2017年12月1号郭宝胜：就我父母被家乡公安施压的三点声明、推筹会最该被邀参加世界政党大会《今日热评》](/content/2018/04/20180418-1392173713763860435.md)
@@ -51,8 +53,6 @@
 [文字版：1110文贵酒后试试另一种方式录播！一切刚刚开始！](/content/2018/04/20180418-5435715492986281855.md)
 
 [（文字稿）曹长青：滕彪八个不择手段诋毁郭文贵，要做名副其实的“乱伦彪”？](/content/2018/04/20180418-1176717369305738792.md)
-
-[Breitbart 报道：中国报道特朗普与习近平在反恐及遣返“逃犯“等方面取得“重大一致意见“](/content/2018/04/20180418-7095490617264238723.md)
 
 
 ## 頁面 10/14 [**<**](/content/README-9.md) [1](/README.md) ... [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) **10** [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-11.md)
