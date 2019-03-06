@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 9/14 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-10.md)
 
+[重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/content/2018/04/20180418-3510219950010298563.md)
+
 [文字版：《文贵看春晚》爆料（三，四）](/content/2018/04/20180418-9010451938927487211.md)
 
 [文字版：《文贵看春晚》爆料最后精彩演讲](/content/2018/04/20180418-1760383134905621462.md)
@@ -51,8 +53,6 @@
 [2017年12月23日郭文贵直播：关于盘古被掠夺、蛆聋等8个伪类的诉讼，以及下一步的爆料计划，文贵向北京再次提出条件](/content/2018/04/20180418-6993418396066281259.md)
 
 [美国新闻网ThinkProgress报道：中国如何在西方国家进行审查和恐吓活动](/content/2018/04/20180418-4208012880425825380.md)
-
-[曹长青 郭宝胜对谈—郭文贵保卫战白热化](/content/2018/04/20180418-7284381815755271685.md)
 
 
 ## 頁面 9/14 [**<**](/content/README-8.md) [1](/README.md) ... [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) **9** [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-10.md)

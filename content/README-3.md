@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 3/14 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [14](/content/README-14.md) [**>**](/content/README-4.md)
 
+[文字版：2018年12月12日报平安视频讲讲第一个5000万与香港张志强的关系](/content/2018/12/20181219-8948086997100898897.md)
+
 [文字版： 20181210郭文贵报平安直播： 纠正一下昨天直播时的几个口误 ](/content/2018/12/20181211-7088742512990169570.md)
 
 [文字版：2018112/09量震床上功夫和 G20中美峰会的真相，孟晚舟女士在加拿大被抓与华 为公司的背后真相，張首晟先生是自殺还是被殺。](/content/2018/12/20181211-3146997192813491543.md)
@@ -51,8 +53,6 @@
 [文字版：2018年11月1号郭文贵先生华府报平安战友们，我以前说的，我希望你们对照正在发生和即将发生的](/content/2018/11/20181102-6608329269804536528.md)
 
 [文字版：10月31日：郭文贵在华盛顿直播 关于今天参加反共大联盟会议的详情和报告 世界正在巨变！](/content/2018/11/20181101-6081222795262941074.md)
-
-[翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/content/2018/10/20181031-5728690210531220405.md)
 
 
 ## 頁面 3/14 [**<**](/content/README-2.md) [1](/README.md) [2](/content/README-2.md) **3** [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) ... [14](/content/README-14.md) [**>**](/content/README-4.md)

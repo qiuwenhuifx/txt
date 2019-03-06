@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 8/14 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [**>**](/content/README-9.md)
 
+[文字版郭友访谈 | 郭先生与小蚂蚁亲密接触（2018年3月31日）](/content/2018/04/20180418-5802151698966349959.md)
+
 [文字版：2018年4月2号吴晓辉如果要是王岐山外甥女婿结果会如何？](/content/2018/04/20180418-2853950060193549328.md)
 
 [文字版：2018年3月30日香港股票市场．银行．律政司．如果全部被香港警方控制结果会是什么样子？](/content/2018/04/20180418-5862976291239032790.md)
@@ -51,8 +53,6 @@
 [文字版2018年3月7日郭媒体郭先生视频](/content/2018/04/20180418-2835349421572666159.md)
 
 [文字版文贵2018年3月4号3月5号报平安视频](/content/2018/04/20180418-4459886476955021656.md)
-
-[重磅访谈 / 袁红冰评“文贵爆料春晚”，根据爆料革命的新形势，对“袁三条”进行再解释](/content/2018/04/20180418-3510219950010298563.md)
 
 
 ## 頁面 8/14 [**<**](/content/README-7.md) [1](/README.md) ... [3](/content/README-3.md) [4](/content/README-4.md) [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) **8** [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) [12](/content/README-12.md) [13](/content/README-13.md) [14](/content/README-14.md) ... [**>**](/content/README-9.md)

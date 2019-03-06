@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 12/14 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-13.md)
 
+[翻译：Breitbart News:中国通过赌场大亨史蒂夫·温恩敦促特朗普将叛逃的亿万富翁驱逐出境](/content/2018/04/20180418-1311698055875889734.md)
+
 [翻译：自由灯塔：被控腐败的中国的反腐官员下台](/content/2018/04/20180418-7152292434988843422.md)
 
 [翻译：Breitbart News：智库在中国政府的压力和中国的网络攻击下延期了持不同政见者的谈话](/content/2018/04/20180418-2767584797521758033.md)
@@ -51,8 +53,6 @@
 [《海峡时报》中国流亡大亨郭文贵在自己推特上登出一周内连续两次与班农会见合影](/content/2018/04/20180418-1194055060299517840.md)
 
 [翻译：华盛顿自由灯塔：异见人士披露中国对美进行秘密情报刺探计划](/content/2018/04/20180418-2729532853787239400.md)
-
-[美国挺郭后援会截止至今日名单如下](/content/2018/04/20180418-4811924814985663963.md)
 
 
 ## 頁面 12/14 [**<**](/content/README-11.md) [1](/README.md) ... [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) [10](/content/README-10.md) [11](/content/README-11.md) **12** [13](/content/README-13.md) [14](/content/README-14.md) [**>**](/content/README-13.md)

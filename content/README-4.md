@@ -4,6 +4,8 @@
 轉載自[戰友之聲](http://littleantvoice.blogspot.com)
 ## 頁面 4/14 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [14](/content/README-14.md) [**>**](/content/README-5.md)
 
+[翻译：自由灯塔Bill 法国法院裁定中国大亨死于意外 海航联合创始人王建的死亡之谜](/content/2018/10/20181031-5728690210531220405.md)
+
 [文字版：20181028 郭文贵直播（完整版） 中美将进入全面金融贸易战 新疆集中营问题将得到国际社会的关注，法国内政部被绿了？](/content/2018/10/20181030-8202855451212977956.md)
 
 [文字版：10月29日文贵报平安直播，世界反共联盟正在酝酿中！ 郭文贵做独立顾问 不加入组织！](/content/2018/10/20181030-1889983154079130395.md)
@@ -51,8 +53,6 @@
 [文字版：路德访谈中南海保镖亨利小哥（下）：再次深入曝光中南海常委们的性故事，捞钱的故事，升官的规则](/content/2018/09/20180917-1687313530283465166.md)
 
 [文字版：9月10号马云辞职的真正原因](/content/2018/09/20180914-8040960110830809305.md)
-
-[文字版：2018年9月11日文贵在船上与大家听音乐并承诺给中国老兵捐两亿美元](/content/2018/09/20180913-5367861768541759446.md)
 
 
 ## 頁面 4/14 [**<**](/content/README-3.md) [1](/README.md) [2](/content/README-2.md) [3](/content/README-3.md) **4** [5](/content/README-5.md) [6](/content/README-6.md) [7](/content/README-7.md) [8](/content/README-8.md) [9](/content/README-9.md) ... [14](/content/README-14.md) [**>**](/content/README-5.md)
